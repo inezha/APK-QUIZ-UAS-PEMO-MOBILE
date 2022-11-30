@@ -1,4 +1,3 @@
 Kelompok saya:
 
-Inezha Sarah
-Lisa Faradilla
+Inezha Sarah & Lisa Faradla
